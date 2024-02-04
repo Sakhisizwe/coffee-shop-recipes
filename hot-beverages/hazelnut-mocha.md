@@ -8,7 +8,7 @@
 - 8 oz Mocha Flavored Coffee
 - 2 oz whole milk
 - 1/4 cup whipped cream
-- 1 Tbsp chocolate syrup + 1 tsp for garnish
+- 1 Tbsp chocolate syrup + 2 tsp for garnish
 
 ## How to Make Hazelnut Mocha
 
