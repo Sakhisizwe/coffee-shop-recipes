@@ -10,7 +10,7 @@
 ## SALTED CARAMEL MOCHA
 
 - 1 1/2 Tbsp toffee nut syrup
-- 3 Tbsp dark chocolate sauce/syrup
+- 4 Tbsp dark chocolate sauce/syrup
 - 1 shot Espresso Roast
 - 1 cup 2% milk
 - Whipped cream
