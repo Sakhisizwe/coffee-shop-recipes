@@ -24,6 +24,6 @@
 
 - Top with whipped cream and drizzle with chocolate syrup.
 
-### Step 3
+### Step 4
 
 - Seal the container
