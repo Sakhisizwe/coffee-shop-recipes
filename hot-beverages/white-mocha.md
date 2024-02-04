@@ -34,3 +34,7 @@
 ### Step 6
 
 - Top with whipped cream.
+
+### Step 6
+
+- Make sure to wash your hands after.
